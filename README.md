@@ -1,2 +1,2 @@
 - 📫 How to reach me ? filip.tod95@gmail.com, +385916199574
-- https://www.linkedin.com/in/filip-todorović-8189b9230 ------>MY Linked 
+- https://www.linkedin.com/in/filip-todorović-8189b9230 => MY Linked 
